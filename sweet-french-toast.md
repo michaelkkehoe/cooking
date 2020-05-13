@@ -20,3 +20,5 @@
 5. Heat a skillet or griddle over medium heat and spread butter all over the bottom. I just hold a stick and rub it everywhere.
 6. Cook the bread for about 1 minute, or until golden and flip the bread, cooking on the other side for equal time or until golden.
 7. Serve with buttermilk syrup or any favorite syrup!
+
+From: https://ohsweetbasil.com/how-to-make-the-best-french-toast-recipe/
