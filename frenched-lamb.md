@@ -14,3 +14,5 @@
 5. Roast the lamb in the upper third of the oven for 15 minutes. 
 6. Turn the racks and roast for 10 minutes longer for medium-rare meat. 
 7. Transfer the racks to a carving board, stand them upright and let rest for 10 minutes.
+
+From: https://www.foodandwine.com/recipes/garlic-crusted-roast-rack-lamb
